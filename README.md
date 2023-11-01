@@ -1,2 +1,2 @@
 # netflix
-sjknsdkfj
+looking into stuff from my netflix data
